@@ -9,5 +9,5 @@ Here are some ideas about me:
 - 💬 Ask me about ***anything***
 - 📫 How to reach me: [***Reach me if you can***](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 Pronouns: ***he/he***
-- ⚡ Fun fact: ***iamdoingsomethingunintersting***
+- ⚡ Fun fact: ***ihaveautism***
 
